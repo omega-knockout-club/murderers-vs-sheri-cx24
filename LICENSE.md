@@ -1,4 +1,4 @@
-
+Experience hooked like never before with premium Scripts for hooked, the #1 Script. Includes auto-sell and auto-farm for unbeatable performance.
 
 
 
